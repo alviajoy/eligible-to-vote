@@ -1,2 +1,0 @@
-# eligible-to-vote
-Alviajoy
